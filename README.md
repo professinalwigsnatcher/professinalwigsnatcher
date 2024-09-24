@@ -4,7 +4,7 @@ erm hi !!
 
 [![Typing SVG](https://readme-typing-svg.demolab.com/?lines=we+are+a+system+..+please+int+with+care.)](https://git.io/typing-svg)
 
-
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Poor+Richard&pause=1000&color=F7C33C&center=true&vCenter=true&multiline=true&width=435&lines=Welcome+to+our+github+!;We+are+a+system%2C+so+please+interact+with+care+!;Our+sys+host+is+Julien+%2F+Julez+!+She+%2F+her+for+her+please+!;Our+2nd+sys+host+is+SD-N+!+He+%2F+him+%2F+they+%2F+them+;Uzi+doorman+%2C+not+always+fronting+%2C+She+%2F+her+%2F+them;Zip+%2C+rarely+fronting+%2C+She+%2F+her;SD-V+%2C+fronting+when+both+hosts+are+overwhelmed.+She+%2F+her+%2F+it+%2F+it's;Engel+!+comfort+%2B+rarely+shows+but+he+exists+!!+He+%2F+him+%2F+they+%2F+them;Doll+%2C+fronts+sometimes%2C+NOT+TALKATIVE+unless+close+friends+!!+she+%2F+her+%2F+they+%2F+them)](https://git.io/typing-svg)
 <!---
 professinalwigsnatcher/professinalwigsnatcher is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
