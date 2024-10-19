@@ -14,6 +14,6 @@ INFJ - 23rd of june . She / her + they / them . Spanish + Arabic + English .
 
 ۰ ۪۪۫۫ · 🌊 interests / int : Dandy's world , Regretevator , Fundamental paper education { fandom interact with EXTREME caution } , Murder drones , Kid friendly , The amazing digital circus , Five nights at Freddy's , Cold Front , My little pony , Bluey { comfort show ^_^ } 
 
-۰ ۪۪۫۫ · 💢 DO NOT INTERACT : Zionists , Racist , Sexual intents , under 13 , you attack ppl for ships { like wtf move on. } , HH + HB fans { just no. please. } , NSFW accounts , Proshippers / comshippers / darkshippers . { might add more in the future, who knows ! }
+۰ ۪۪۫۫ · 💢 DO NOT INTERACT : Zionists , Racist , Sexual intents , under 13 { certain expectations can be held. }, you attack ppl for ships { like wtf move on. } , HH + HB fans { just no. please. } , NSFW accounts , Proshippers / comshippers / darkshippers . { might add more in the future, who knows ! }
 
 { Tisha art ; drawn by me ! :3 }
